@@ -1,2 +1,2 @@
-# BIG10-REV-Share-Executive-Summary
-Overview of possible revenue share for the Big10 and women's gymnastics 
+# b1g-revenue-share-executive-summary
+Overview of possible revenue share for the Big 10 and women's gymnastics 
